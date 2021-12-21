@@ -1,1 +1,3 @@
-TODO
+# Lesson 7 Too late
+
+The plane was late and detectives were waiting at the airport all morning. THey were expecting a valuble parcel of diamonds from South Africa. A few hours earlier, someone had told the police that theives would try to steal the diamonds. When the plane arrived, some of the detectives were waiting inside the main building while others were waiting on the airfield. Two men took the parcel off the plane and carried it into the Customs House. While two detectives were keeping guard at the door, two others opened the parcel . To their suprise, the precious parcel was full of stones and sand!
