@@ -1,0 +1,3 @@
+# Lesson 28 No parking 
+
+Jasper White is one of those rare people who belive in ancient myths. He has just bought a house in the city, but ever since he moved in, he has trouble with cars and their owners. When he returns home at night, he always finds that someone has parked a car outside his gate. Because of this, he has not been able to get his own car in even once. Jasper has put up 'No Parking' signs outside his gate, but these have not have any effect. Now he has put an ugly stone head over the gate. it is one of the most ugly faces I have ever seen. I asked him what it was and eh told me that it was Medusa, the Gorgon. Jasper hopes that she will turn cars and their owners into stone. But none of them has been turned into stone yet!
