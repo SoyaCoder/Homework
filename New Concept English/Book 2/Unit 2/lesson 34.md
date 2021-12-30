@@ -1,0 +1,3 @@
+#  Lesson 34 Quick work 
+
+Dan Robinson has been worried all week. Last Tuesday he received a letter from the local police. In the letter he was asked to call the station. Dan wondered why he was wanted by the police, but he is not worried anymore. At the station, he was told by a smiling policeman that his bicycle has been found. Five days ago the policeman told him, the bicycle was picked up in a small village four hundred miles away. It is now being sent home by train. Dan was most suprised when he heard the news. He was amused too, because he never expected it to be found. It was stolen twenty years ago when Dan was a boy of fifteen!
