@@ -1,0 +1,3 @@
+#  Lesson 46 Expensise and uncomforable
+
+When a plane from London arrived at Sydney airport, workers began to unload a number of wooden boxes which contained clothing. No one could account for the fact that one of the bags were extremly heavy. It suddenly ocurred to one of the workers to open up the box. He was astonished at what he found. A man was lying in the box on top of a pile of woolen goods. He was so suprised at being discovered he did not even run away. After he was arrested the man admitted hiding in the box before the plane left London. He had a long and uncomfortable trip, for he had been confined toi the wooden box for eighteen hours. The man was ordered to pay $3,500 for the cost of the trip. The normal price is $2,000!
