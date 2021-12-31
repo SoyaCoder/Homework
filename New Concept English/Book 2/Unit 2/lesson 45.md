@@ -1,0 +1,3 @@
+#  Lesson 45 A clear conscience
+
+The whoel village had learnt that a large sum of money had been lost. Sam Benton, the local butcher, had lost his wallet while taking his savings to the post office. Sam was sure that the wallet must have been found by one of the villagers, but it was not returned to him. Three months passed, and then one morning, Sam found his wallet his front door. It had been wrapped up in newspaper and it contained half the money he had lost, together with a note which said : 'A thief, yes, but only 50 percent a thief!' Two months later, some more money was sent to Sam with another note: 'Only 25 percent a thief now!' In time, all Sam's money was payed back in this way. The last not said: 'I am 100 percent honest now!'
