@@ -1,0 +1,3 @@
+#  Lesson 41 Do you call that a hat?
+
+'Do you call that a hat?' I said to my wife. 'You needn't be so rude about it,' my wife answered as she looked in the mirror. I sat down in one of those modern chairs with holes in it and waited. We had been in the house for half an hour and my wife was still in the mirror. 'We musn't buy things we don't need,' I remarked suddenly. I regretted saying it almost at once. 'You needn't have said that,' my wife answered. 'I need't remind you of the terrible tie you bought yesterday.'I find it beautiful,' I said. 'A man can never have too many ties.' 'And a woman can never have too many can't have too many hats,' she answered. Ten minutes later we walked out of the shop together. My wife was wearing a hat that looked like a light house!
