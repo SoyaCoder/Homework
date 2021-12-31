@@ -1,0 +1,3 @@
+#  Lesson 42 Not very musical
+
+As we had a long walk through one of the markets of Old Delhi we stopped at a sqaure to have a rest. After a time, we noticed a snake charmer with two large baskets on the other side of the square, So we went to have a look at him. As soon s he saw us he picked up a long pipe covered with coins and opened one of the baskets. When he began to play a tune, we had our first glimpse of the snake. It rose out of the basket and began to follow the movements of the pipe. We were very much suprised when the snake charmersuddenly began to play jazz and modern pop songs. The snake, however, continued to 'dance' slowly. It obviously could not tell the difference between Indian music and jazz!
