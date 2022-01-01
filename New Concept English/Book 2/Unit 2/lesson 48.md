@@ -1,0 +1,3 @@
+#  Lesson 48 Did you want to tell me something?
+
+Dentists always ask questions when it is impossible for you to answer. My doctor has just pulled out one of my teeth and told me to rest for a while. I tried to say something but my mouth was full of cotten wool. He knew I collected matchboxes and asked me if my collection was growing. Then he asked me how my brother was and whether I liked my new job in London. In answer to these I either nodded or made strange noises. Meanwhile my tongue was busy searching out the hole where the tooth had been. I suddenly felt very worried, but could not say anything. When the doctor at last removed the cotten wool from my mouth, I was able to tell him that he had pulled out the wrong tooth.
