@@ -1,0 +1,3 @@
+#  Lesson 47 A thirsty ghost 
+
+A public house which was recently bought by Mr. Ian Thompson is up for sale. Mr. Thompson is going to sell it because it is haunted. he told me that he could not sleep one night because he heard a strange noise coming from the bar. The next morning, he found that the doors had been blocked by chairs and the furniture had been moved. Though Mr. Thompson had turned off the lights before he went to bed, they were on in the morning. He also said he had found five empty whisky bottles which the ghost must have drunk the night before. When I suggested that some villagers must have came in for a free drink, Mr. Thompson shook his head. The villagers told him that they will not accept the pub even if he gives it away.
