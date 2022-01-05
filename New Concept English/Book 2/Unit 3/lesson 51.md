@@ -1,0 +1,3 @@
+# Reward for Virtue
+
+My friend, Hugh, has always been fat but things have gotten so bad recently that he decided to go on a diet. he started his diet a week ago. First of all, he wrote out a long list of all the foods which were forbidden. The list included most of the things Hugh loves: butter, potatoes, rice beer, milk, choclate, and sweets. Yesterday I paid him a visit. I was not suprised to see that Hugh was still as fat as ever. He led me into his room and hurriedly hid a large parcel under his desk. It was obvious that he was very embarrassed. When I asked him what he was doing, he smiled guiltily and then put the parcel on his desk. He explained that his diet was so strict that he had to reward himself occasionally
